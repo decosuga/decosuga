@@ -13,7 +13,7 @@ byi i'm a system introject of kyo kaneko and akina saegusa. read my rentry boi. 
 
 <sub>i am also a nonsharing netaro yowa yume just beware of dat</sub>
 
-i love prosekai & 18trip ! other things are bandori, deltarune, hetalia, hypmic, twewy & kh, dunmeshi, persona, jjba, etc
+i love prosekai & 18trip & hetalia (i guess) ! other things are bandori, deltarune, hypmic, twewy & kh, dunmeshi, persona, jjba, etc
 <p align="center"> 
   <img src="https://64.media.tumblr.com/d51e212bc28daeb7f5e53b5a2fd786a1/0baf6f1b405bb562-c6/s100x200/153c33ed1e8b3ebb7ab2cd244da5005380a2a5c5.gifv" align="center" style="width: 100px;">   <img src="https://64.media.tumblr.com/e960ef5b90706c77098cec98b72c2608/c8e11940d738689b-fe/s100x200/902bbc19de6e026561a8bf30236a23204ffb8338.gifv" align="center" style="width: 100px;">
 </p>
