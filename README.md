@@ -6,7 +6,7 @@ leah or akinyan ✦  he / they</h3>
 </p>
 
 <p align="left">
-hallo! <b>i'm int and c+h friendly</b> so when i'm not sitting next to a friend feel free to come up 2 me! I Lovveee talking to people with the same interests. don't b shy - most of the time i am offtab, just whisper if you wanna talk to me and i'll try to respond asappp
+hallo! <b>i'm int and c+h friendly</b> most of the time so when i'm not sitting next to a friend feel free to come up 2 me! I Lovveee talking to people with the same interests. don't b shy - most of the time i am offtab, just whisper if you wanna talk to me and i'll try to respond asappp
 
 byi i'm a system introject of kyo kaneko and akina saegusa. read my rentry boi. some other alters will like 2 play this game too, but it's mainly me. doubles are fine.
 </p>
