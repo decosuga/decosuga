@@ -10,7 +10,6 @@ hallo! <b>i'm int and c+h friendly</b> most of the time so when i'm not sitting 
 
 byi i'm a system introject of kyo kaneko and akina saegusa. read my rentry boi. some other alters will like 2 play this game too, but it's mainly me. doubles are fine.
 </p>
-<sub>i am also a nonsharing netaro yowa yume just beware of dat</sub>
 
 i love prosekai & 18trip & hetalia (i guess) ! other things are bandori, deltarune, hypmic, twewy & kh, dunmeshi, persona, jjba, etc
 <p align="center"> 
