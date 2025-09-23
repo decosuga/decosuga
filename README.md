@@ -1,5 +1,5 @@
 <p align="center"> 
-  <img src="https://media1.tenor.com/m/Gtp3CN94vU8AAAAC/rui-rui-kamishiro.gif" align="left" style="width: 450px;">
+  <img src="https://media1.tenor.com/m/Gtp3CN94vU8AAAAC/rui-rui-kamishiro.gif" align="left" style="width: 400px;">
 </p>
 <h3><p align="center">
 leah or akinyan ✦  he / they</h3>
