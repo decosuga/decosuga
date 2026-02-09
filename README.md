@@ -8,10 +8,12 @@ leah or akinyan ✦  he / they</h3>
 <p align="left">
 hallo! <b>i'm int and c+h friendly</b> most of the time so when i'm not sitting next to a friend feel free to come up 2 me! i Lovveee talking to people with the same interests. don't b shy - most of the time i am offtab, just whisper if you wanna talk to me and i'll try to respond asappp
 
-byi i'm a splitroject of kyo kaneko and akina saegusa. some other alters will like 2 play this game too (kian/nei/rore idk who else wants to play a pony game), but it's mainly me. doubles are fine i'm not rlly connected to my source lel!
+byi i'm a splitroject of kyo kaneko and akina saegusa. some other alters will like 2 play this game too (kian/nei/rore idk who else), but it's mainly me. doubles are fine i'm not rlly connected to my source lel! also i am bodily 19 and i'd prefer not 2 talk to anyone under 15
 </p>
 
 i love prosekai & 18trip & hetalia! other things are bandori, deltarune, hypmic, twewy & kh, dunmeshi, persona, jjba, etc
+<div>
+</div>
 <p align="center"> 
   <img src="https://64.media.tumblr.com/d51e212bc28daeb7f5e53b5a2fd786a1/0baf6f1b405bb562-c6/s100x200/153c33ed1e8b3ebb7ab2cd244da5005380a2a5c5.gifv" align="center" style="width: 100px;">   <img src="https://64.media.tumblr.com/e960ef5b90706c77098cec98b72c2608/c8e11940d738689b-fe/s100x200/902bbc19de6e026561a8bf30236a23204ffb8338.gifv" align="center" style="width: 100px;">
 </p>
